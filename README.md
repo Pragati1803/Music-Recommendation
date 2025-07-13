@@ -58,4 +58,4 @@ Feel free to reach out if you have any questions or feedback!
 - GitHub: [Pragati1803](https://github.com/Pragati1803)
 
 ---
-**Made with ❤️ by Suhas**
+**Made with ❤️ by Pragati**
